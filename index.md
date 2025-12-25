@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+I am going to write about something. Definitely about something, though I do not know what exactly yet, 
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+since I have many ideas flowing in my head. 
